@@ -1,4 +1,4 @@
-# Lo que me acuerdo porque todo se me borro por darle al; ALT + Flecha Izquierda
+# Lo que me acuerdo porque todo se me borro por darle a el ALT + Flecha Izquierda
 
 ![rauw](https://media.tenor.com/qJRMLPlR3_8AAAAj/maxwell-cat.gif)
 ![rauw](https://media.tenor.com/qJRMLPlR3_8AAAAj/maxwell-cat.gif)
